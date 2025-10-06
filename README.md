@@ -1,0 +1,1 @@
+# Open-Crust-Mining-Detection---SIH
